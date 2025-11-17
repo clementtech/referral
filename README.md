@@ -4,7 +4,7 @@
 
 > Unemployment is calling, so please use my referral code to get rich together :D
 
-If you need assistant, please feel free to contact me on 
+If you need assistant, please feel free to contact me on [LinkedIn](www.linkedin.com/in/clementtech).
 
 This is not a financial advice! Please do your own research (DYOR) especially on investment products (I'm looking at you crypto)
 
